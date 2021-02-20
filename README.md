@@ -1,2 +1,0 @@
-# reiziwq
-anak pertama
